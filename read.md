@@ -1,9 +1,9 @@
- i am doing it in moring 
+ i am doing it in morining 
 hi i am trisandhya
 i am doing my github first assignement
-i am a new member who wants to add fev net steps 
+i am a new member who wants to add few new steps 
 
-you shouls motivate us to do some more codeing 
+you should motivate us to do some more coding 
 
 
 hello again i will go again 
